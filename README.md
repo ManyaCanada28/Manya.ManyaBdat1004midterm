@@ -1,0 +1,1 @@
+# Manya.ManyaBdat1004midterm
